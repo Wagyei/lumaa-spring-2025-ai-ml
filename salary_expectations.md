@@ -1,1 +1,1 @@
-My salary expectation is 30/hr
+My salary expectation is 20-30/hr
